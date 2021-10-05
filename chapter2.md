@@ -1,4 +1,4 @@
-CHAPTER 2
+CHAPTER2
 
 Three nights later old Major died peacefully in his sleep. His body was buried at the foot of
 the orchard.
