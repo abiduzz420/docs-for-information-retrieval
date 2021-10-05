@@ -1,4 +1,4 @@
-CHAPTER 1
+CHAPTER1
 
 Mr. Jones, of the Manor Farm, had locked the hen-houses for the night, but was too drunk to
 remember to shut the pop-holes. With the ring of light from his lantern dancing from side to
