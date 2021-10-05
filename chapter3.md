@@ -1,4 +1,4 @@
-Chapter 3
+CHAPTER 3
 
 How they toiled and sweated to get the hay in! But their efforts were rewarded, for the
 harvest was an even bigger success than they had hoped.
