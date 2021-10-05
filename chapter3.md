@@ -1,4 +1,5 @@
 Chapter 3
+
 How they toiled and sweated to get the hay in! But their efforts were rewarded, for the
 harvest was an even bigger success than they had hoped.
 Sometimes the work was hard; the implements had been designed for human beings and not
